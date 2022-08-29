@@ -1,2 +1,0 @@
-# yarzarkyawthein-reop
-yarzarlyawthein
